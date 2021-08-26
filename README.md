@@ -3,5 +3,5 @@ I can collaborate on any project, currently working on Discord Bots.
 and yes that's all.
 
 Currently on Discord:
-![Discord](https://discord.c99.nl/widget/theme-3/851812151140155432.png)
+![Discord](https://discord.c99.nl/widget/theme-3/482951588055351306.png)
 
